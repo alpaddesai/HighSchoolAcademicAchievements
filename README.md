@@ -4,6 +4,8 @@
 
 ![image](HighSchoolGradesaIndia.jpg)
 
+![image](WESCredentialAnalysis.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
