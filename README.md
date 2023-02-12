@@ -2,4 +2,4 @@
 
 ![image](AmericanElementary.jpg)
 
-![image]()
+![image](HighSchoolGradesaIndia.jpg)
